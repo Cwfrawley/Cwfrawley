@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HufflepuffSoldier
+- 👋 Hi, I’m @Cwfrawley
 - 👀 I’m interested in learning how to code
 - 🌱 I’m currently just starting out
 - 📫 How to reach me cwfrawley2001@gmail.com
